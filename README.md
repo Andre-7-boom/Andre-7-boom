@@ -9,4 +9,7 @@ Me chamo procopio bagual
 
 ### Você entrar em contato comigo
 
-andre.camargo06@escola.pr.gov.br
+andre.camargo06@escola.pr.gov.b
+
+
+![](https://media1.tenor.com/m/h1xZ8JJKmPkAAAAC/leno-brega.gif)
